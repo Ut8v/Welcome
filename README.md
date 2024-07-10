@@ -2,7 +2,7 @@
 
 
 ## 🚀 About Me
-I'm a Information Technology major- Software Development Track @University of cincinnati..
+I'm an Information Technology major in the Software Development Track at the University of Cincinnati. I am someone who is eager to learn and to make a difference. I love to tackle problems that people think are out of my ability. I am a hardcore learner as well as someone who is always ready for anything and everything. My strong abilities include figuring things out and understanding my resources or where I can find them.
 
 
 ## 🛠 Skills
